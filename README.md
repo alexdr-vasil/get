@@ -1,2 +1,1 @@
-# get
-Mama uuuuuuuuuuuuuuuuu
+РРРРРРРЯЯЯЯЯЯЯЯЯ ТУПОЙ
